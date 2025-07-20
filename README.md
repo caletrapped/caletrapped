@@ -11,7 +11,7 @@ Nate
 
 He / They pronouns
 
-sys
+plural ++ fictionkin
 
 
 ---
