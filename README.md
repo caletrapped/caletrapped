@@ -9,9 +9,11 @@
 
 Nate
 
-He / They pronouns
+He / They preferred
 
 plural ++ fictionkin
+
+DNC
 
 
 ---
