@@ -1,32 +1,19 @@
 ---
-
-
- ![](https://i.pinimg.com/736x/04/ef/d3/04efd3d8d6c4a18520d2b3e7e0d659f0.jpg) 
-
+![](https://i.pinimg.com/736x/b5/c2/c9/b5c2c9f8db5924c981a545bb2eae38cd.jpg)
 
 ---
 
+. Nate / Gany
 
-Nate
+. He / They
 
-He / They preferred
+. Fictionkin & Plural
 
-plural ++ fictionkin
+. More info on straw
 
-DNC
+. Ask for personal accounts
 
-
----
-
-
-I like forsaken, may madness and solarballs
-more info on straw
-
+. I'm gonna edit ts later
 
 ---
-
-
-![](https://i.pinimg.com/736x/87/75/ba/8775ba7b1589fa7e6148bc5a0adf5f3c.jpg)
-
-
----
+![](https://i.pinimg.com/736x/33/25/07/332507c308baed6291f4fd9396e7037f.jpg)
