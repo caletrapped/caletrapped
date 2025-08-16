@@ -15,6 +15,11 @@
 
 . I'm gonna edit ts later
 
+. I'm a minor and wont specify my age ifykyk tbh
+
+. Don't be freaky w me unless close
+
+
 ---
 ![](https://i.pinimg.com/736x/33/25/07/332507c308baed6291f4fd9396e7037f.jpg)
 
