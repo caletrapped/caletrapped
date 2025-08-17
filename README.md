@@ -7,17 +7,21 @@
 
 . He / They
 
+. I'm into Solarballs , Forsaken , MM12 , and hacker/exploiter n admins of roblox
+
 . Fictionkin & Plural
 
-. More info on straw
+. Who's fronting won't be specified due to privacy (excluding some)
 
-. Ask for personal accounts
+. More info on strawpage that'll take a while till motivated so I added most here for now
 
-. I'm gonna edit ts later
+. Ask for personal accounts I don't give it out for free
 
 . One step closer to adulthood don't bullshit me with your ''haha im freaky so funny haha'' unless you're close to me
  
 . Stop making my friends uncomfortable brah u ain't funny no one is laughing over your freaky shit ._.  [Directed at no one in particular it's in general]
+
+. I'm not actually this agressive I'm just done w SOME people
 
 ---
 ![](https://i.pinimg.com/736x/33/25/07/332507c308baed6291f4fd9396e7037f.jpg)
