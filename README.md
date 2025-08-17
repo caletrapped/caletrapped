@@ -15,9 +15,7 @@
 
 . I'm gonna edit ts later
 
-. I'm a minor and wont specify my age ifykyk tbh
-
-. Don't be freaky w me unless close
+. One step closer to adulthood don't bullshit me with your ''haha im freaky so funny haha'' unless you're close to me
  
 . Stop making my friends uncomfortable brah u ain't funny no one is laughing over your freaky shit ._.  [Directed at no one in particular it's in general]
 
