@@ -18,8 +18,8 @@
 . I'm a minor and wont specify my age ifykyk tbh
 
 . Don't be freaky w me unless close
-
-. Stop making my friends uncomfortable brah u ain't funny no one is laughing over your freaky shit ._.  [Directed at no one]
+ 
+. Stop making my friends uncomfortable brah u ain't funny no one is laughing over your freaky shit ._.  [Directed at no one in particular it's in general]
 
 ---
 ![](https://i.pinimg.com/736x/33/25/07/332507c308baed6291f4fd9396e7037f.jpg)
