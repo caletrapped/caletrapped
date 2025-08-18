@@ -19,9 +19,9 @@
 
 . One step closer to adulthood don't bullshit me with your ''haha im freaky so funny haha'' unless you're close to me
  
-. Stop making my friends uncomfortable brah u ain't funny no one is laughing over your freaky shit ._.  [Directed at no one in particular it's in general]
+. Don't make my friends uncomfortable pls <//3
 
-. I'm not actually this agressive I'm just done w SOME people
+. I'm not actually this agressive btw
 
 ---
 ![](https://i.pinimg.com/736x/33/25/07/332507c308baed6291f4fd9396e7037f.jpg)
