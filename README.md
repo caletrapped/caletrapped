@@ -9,7 +9,7 @@
 
 . IWC most of the time
 
-. I'm into Solarballs , Forsaken , MM12 , and hacker/exploiter n admins of roblox
+. I'm into Forsaken , MM12 , and hacker/exploiter n admins of roblox
 
 . Fictionkin & Plural
 
