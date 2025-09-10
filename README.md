@@ -1,1 +1,1 @@
-im gonna work on ts
+![](https://64.media.tumblr.com/d0e6dd403067ac1b1e13ad71507087c5/6e9a71b5f3664bde-fd/s2048x3072/ea58769e8f895faf18f27569649415e1677216ad.pnj)
