@@ -6,6 +6,6 @@
 
 -> noo dont kys youre too sexayyyy
 
--> don't copy off of us no matter ty - 💵
+-> don't copy off of us no matter ty
 
 ![](https://64.media.tumblr.com/a1d93a2c8232f8efca030181e4429a28/f185d5fa8ce71c7c-f6/s100x200/90c63881f29797b47bab2726263705d74f19d7ae.pnj)
